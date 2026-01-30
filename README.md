@@ -8,14 +8,14 @@
 
 <h5 align="center"
 
-  ![](https://komarev.com/ghpvc/?username=fleta-z&color=red&style=plastic&label=⠀ㅤᓚᘏᗢㅤㅤ)
+  ![](https://komarev.com/ghpvc/?username=fleta-z&color=ff0000&style=plastic&label=⠀ㅤᓚᘏᗢㅤㅤ)
 
 
   ![](https://i.pinimg.com/736x/c7/7f/3e/c77f3e0c01ecffa02c77d3dcfbd2d97e.jpg)
 
 <h5 align="center"
 
- ${\textsf{\color{#570000} 𝙨𝙥𝙖𝙢 𝙛𝙤𝙡𝙡𝙤𝙬𝙞𝙣𝙜 𝙖𝙘𝙘. 𝙗𝙡𝙤𝙘𝙠 𝙞𝙛 𝙪𝙣𝙬𝙖𝙣𝙩𝙚𝙙, 𝙤𝙛 𝙘𝙤𝙪𝙧𝙨𝙚 }}$<br>
+ ${\textsf{\color{#610000} spam following acc. block if unwanted of course }}$<br>
 
 
   <h5 align="center"
