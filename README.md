@@ -1,23 +1,33 @@
 <h5 align="center"
     
-  ${\textsf{\color{yellow} “⠀𝙊𝙝 𝙢𝙮, 𝙄 𝙙𝙤𝙣'𝙩 𝙡𝙞𝙠𝙚 𝙩𝙝𝙚 𝙨𝙠𝙮 𝙩𝙤𝙙𝙖𝙮...⠀“ }}$<br>
-
-<h5 align="center"
-
-  ![](https://komarev.com/ghpvc/?username=fleta-z&color=yellow&style=plastic&label=⠀ㅤᓚᘏᗢㅤㅤ)
-
-  ![](https://i.postimg.cc/kg1fgM0s/GUULOOOBAAA.jpg)
-
-<h5 align="center"
-
- ${\textsf{\color{yellow} 𝙨𝙥𝙖𝙢 𝙛𝙤𝙡𝙡𝙤𝙬𝙞𝙣𝙜 𝙖𝙘𝙘. 𝙗𝙡𝙤𝙘𝙠 𝙞𝙛 𝙪𝙣𝙬𝙖𝙣𝙩𝙚𝙙, 𝙤𝙛 𝙘𝙤𝙪𝙧𝙨𝙚 }}$<br>
-
- <h5 align="center"
-   
- ${\textsf{\color{yellow} “⠀𝘼𝙣 𝙖𝙙𝙫𝙚𝙣𝙩𝙪𝙧𝙚𝙧 𝙬𝙝𝙤 𝙩𝙧𝙖𝙫𝙚𝙡𝙨 𝙖𝙘𝙧𝙤𝙨𝙨 𝙩𝙝𝙚 𝙨𝙞𝙭 𝙘𝙤𝙣𝙩𝙞𝙣𝙚𝙣𝙩𝙨, 𝙨𝙤 𝙩𝙤 𝙨𝙥𝙚𝙖𝙠!⠀“ }}$<br>
+  ${\textsf{\color{#800000} “⠀ 𝙃𝙖𝙣𝙙 𝙩𝙝𝙖𝙩 𝒅𝒓𝒆𝒂𝒅𝒇𝒖𝒍, 𝒄𝒖𝒏𝒏𝒊𝒏𝒈 𝒃𝒂𝒔𝒕𝒂𝒓𝒅 𝙤𝙫𝙚𝙧 𝙩𝙤 𝙢𝙚 𝙞𝙛 𝙮𝙤𝙪 𝙚𝙫𝙚𝙧 𝙨𝙚𝙚 𝙝𝙞𝙢.⠀“ }}$<br>
 
   <h5 align="center"
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+♱
 
-   [atabook](https://acrossthecontinents.atabook.org/)
+<h5 align="center"
+
+  ![](https://komarev.com/ghpvc/?username=fleta-z&color=red&style=plastic&label=⠀ㅤᓚᘏᗢㅤㅤ)
+
+
+  ![](https://i.pinimg.com/736x/c7/7f/3e/c77f3e0c01ecffa02c77d3dcfbd2d97e.jpg)
+
+<h5 align="center"
+
+ ${\textsf{\color{#570000} 𝙨𝙥𝙖𝙢 𝙛𝙤𝙡𝙡𝙤𝙬𝙞𝙣𝙜 𝙖𝙘𝙘. 𝙗𝙡𝙤𝙘𝙠 𝙞𝙛 𝙪𝙣𝙬𝙖𝙣𝙩𝙚𝙙, 𝙤𝙛 𝙘𝙤𝙪𝙧𝙨𝙚 }}$<br>
+
+
+  <h5 align="center"
+
+♱
+
+   [atabook](https://acrossthecontinents.atabook.org/)ㅤㅤ[main acc](https://github.com/fleta-z)
+
+ <h5 align="center"
+
+♱
+
+ <h5 align="center"
+   
+ ${\textsf{\color{#800000} “⠀𝙄’𝙡𝙡 𝙝𝙖𝙣𝙜 𝙝𝙞𝙨 𝙝𝙚𝙖𝙙 𝙤𝙫𝙚𝙧 𝙢𝙮 𝙗𝙚𝙙. 𝙊𝙣𝙡𝙮 𝙩𝙝𝙚𝙣 𝙘𝙖𝙣 𝙄 𝙜𝙚𝙩 𝙪𝙥 𝙞𝙣 𝙩𝙝𝙚 𝙢𝙤𝙧𝙣𝙞𝙣𝙜 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙝𝙖𝙫𝙞𝙣𝙜 𝙖 𝒏𝒊𝒈𝒉𝒕𝒎𝒂𝒓𝒆.⠀“ }}$<br>
