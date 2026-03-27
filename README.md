@@ -1,21 +1,20 @@
-<h5 align="center"
+<h3 align="center"
     
-  ${\textsf{\color{#a62828} “ㅤ𝑯𝒂𝒏𝒅 }}$ ${\textsf{\color{#a62828} 𝒕𝒉𝒂𝒕 }}$ ${\textsf{\color{#800000} 𝒅𝒓𝒆𝒂𝒅𝒇𝒖𝒍, }}$ ${\textsf{\color{#800000} 𝒄𝒖𝒏𝒏𝒊𝒏𝒈 }}$ ${\textsf{\color{#4a130f} 𝒃𝒂𝒔𝒕𝒂𝒓𝒅 }}$ ${\textsf{\color{#4a130f} 𝒐𝒗𝒆𝒓 }}$ ${\textsf{\color{#2e110a} 𝒕𝒐 }}$ ${\textsf{\color{#2e110a} 𝒎𝒆 }}$ ${\textsf{\color{#4a130f} 𝒊𝒇 }}$ ${\textsf{\color{#4a130f} 𝒚𝒐𝒖 }}$ ${\textsf{\color{#661a10} 𝒆𝒗𝒆𝒓 }}$ ${\textsf{\color{#661a10} 𝒔𝒆𝒆 }}$ ${\textsf{\color{#800000} 𝒉𝒊𝒎.ㅤ“ }}$
-
+  ${\textsf{\color{#ff0000} ~ 𝒘𝒊𝒑 𝒚𝒐. ~ }}$
   <h5 align="center"
 
 ♱
 
 <h5 align="center"
 
-  ![](https://komarev.com/ghpvc/?username=fleta-z&color=800000&style=plastic&label=⠀ㅤᓚᘏᗢㅤㅤ)
+  ![](https://komarev.com/ghpvc/?username=fleta-z&color=800000&style=plastic&label=⠀ㅤ𝑭𝑬𝑳𝑳𝑬𝑫ㅤㅤ)
 
 
-  ![](https://i.pinimg.com/736x/c7/7f/3e/c77f3e0c01ecffa02c77d3dcfbd2d97e.jpg)
+  ![](https://i.pinimg.com/736x/8d/60/e3/8d60e37edca0bb71323121fc3c140a67.jpg)
 
 <h5 align="center"
 
- ${\textsf{\color{#610000} spam following acc. block if unwanted of course }}$<br>
+ ${\textsf{\color{#ff0000} ~ 𝒔𝒑𝒂𝒎 𝒇𝒐𝒍𝒍𝒐𝒘𝒊𝒏𝒈 𝒂𝒄𝒄𝒐𝒖𝒏𝒕. 𝒃𝒍𝒐𝒄𝒌 𝒊𝒇 𝒖𝒏𝒘𝒂𝒏𝒕𝒆𝒅 ~}}$<br>
 
 
   <h5 align="center"
